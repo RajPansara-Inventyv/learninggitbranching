@@ -18,8 +18,11 @@
      
      ![r4](https://github.com/user-attachments/assets/b39c9449-7dc6-4c8a-8cab-fd3d83cf4dea)
      
-  5. ***Complition of Introduction Sequence***
+  5. ***Complition of Introduction Sequence:***
       
-    ![r5](https://github.com/user-attachments/assets/02f02c32-f379-4b39-a66f-501cd0f810f4)
+     ![r5](https://github.com/user-attachments/assets/ec2e7ad6-9e7f-43b1-95b2-0ab8dfadb3dd)
+
+
+    
 
 
